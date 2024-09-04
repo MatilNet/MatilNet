@@ -8,4 +8,4 @@
 
 
 
-Diğer kısımlar Yakında...
+Diğer kısımlar Yakında..
